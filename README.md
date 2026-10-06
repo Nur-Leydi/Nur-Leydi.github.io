@@ -6,7 +6,7 @@ Guest Researcher, Methods in Medical Informatics, Department of Computer Science
 
 PhD in Computer Science, University of Tübingen, 2026
 
-📧 nurhan.arslan@uni-tuebingen.de
+📧 nurhan.arslan@uni-tuebingen.de · [ORCID: 0009-0008-5029-8331](https://orcid.org/0009-0008-5029-8331)
 
 ---
 
