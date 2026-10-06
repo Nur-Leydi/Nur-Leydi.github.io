@@ -1,4 +1,4 @@
-# Nur-Lady.github.io
+# Nur-Leydi.github.io
 
 # Nurhan Arslan
 
